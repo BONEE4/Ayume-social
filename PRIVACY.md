@@ -1,6 +1,6 @@
 **📑 • Política de Privacidade**
 
-**Privacidade do Ayume** 🛡️🔒
+**Privacidade da Ayume** 🛡️🔒
 
 Nós nos preocupamos com a sua privacidade e estamos comprometidos em proteger as suas informações. Leia atentamente esta Política de Privacidade para entender como tratamos os seus dados.
 
